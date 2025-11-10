@@ -1,1 +1,2 @@
 # TV-i-TVN-robi-z-ka-dego-tematu-geming-i-Lusing-game-
+Telewizja z każdej nauki robi show oparte o geming losowy i opiera się o opactwo Mari Magdaleny Bożej nie bożej. I grozi naukowcom Boziom. Poza Polską ci ludzie są z królestwa bożego żydowskiego co w każdej prostej nauce z Jurkiem Magdzińskim na czele dopatruje się cudu telekinetycznego czy mocy bozi i innych bajek na resorach niż pomysłowości naukowej nauki. TV robi ze wszystkiego geming o życie żywych istot i pokazuje te zagadnienia jak grę w pokera czy róletkę. 
